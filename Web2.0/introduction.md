@@ -1,1 +1,1 @@
-Storing my Web2.0 item.
+Storing my Web2.0 item
